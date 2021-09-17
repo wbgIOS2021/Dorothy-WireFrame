@@ -1,2 +1,0 @@
-# Dorothy-WireFrame
-.
